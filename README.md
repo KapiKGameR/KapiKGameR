@@ -1,0 +1,3 @@
+- Hi, I’m @KapiKGameR
+- I don't know what the hell I'm doing
+- You can reach me on twitter I think (same username)
